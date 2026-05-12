@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Strava for macOS integration with advanced Strava for macOS Integration | sync-with-wearables + progress-analytics. Featuring sync-with-wearables and
 
 
 
